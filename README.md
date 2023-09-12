@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @jaydiggz
 - 👀 I’m interested in tech
-- 🌱 I’m currently learning IA
+- 🌱 I’m currently learning Infromation technology
 - 💞️ I’m looking to collaborate on TECH IDEAS/PROGRAMES% CODING
 - 📫 How to reach me ...IG- jayzsne
 
